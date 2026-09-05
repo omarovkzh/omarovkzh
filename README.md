@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **mukhammedomarovvv@gmail.com**
 
-- 📝 I regularly write articles on **[https://www.instagram.com/omarov.kzh/](https://www.instagram.com/omarov.kzh/)**
+- 📝 I usually write articles on **[https://www.instagram.com/omarov.kzh/](https://www.instagram.com/omarov.kzh/)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
